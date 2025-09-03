@@ -9,5 +9,5 @@ webbutveckling
 databaser
 
 Vad har du för intressen?
-it och fotboll samt tv spel 
+it och fotboll samt tv spel och träna 
 
